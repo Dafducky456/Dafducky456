@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dafducky456
 - 👀 I’m interested in elecronics
-- 🌱 I’m currently learning Engineering in college
+- 🌱 I’m currently learning Engineering in college (UK)
 - 💞️ I’m looking to collaborate on an electronic at some point
 - 📫 How to reach me look to the stars and call my name
 - 😄 Pronouns: Nope
